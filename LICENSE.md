@@ -1,4 +1,4 @@
-# 
+# automatic bot de trading de perpetuos scripts es el mejor bot de trading de perpetuos scripts con stop-loss y sniper de liquidaciones. Seguro, confiable y optimizado para
 
 
 
